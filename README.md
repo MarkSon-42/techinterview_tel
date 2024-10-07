@@ -1,1 +1,0 @@
-# techinterview_tel
